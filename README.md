@@ -1,2 +1,2 @@
 # WELCOME NOOBS
-Treat me with COFFEE :)
+Want COFFEE as a payment for this :)
